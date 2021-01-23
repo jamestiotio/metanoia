@@ -10,7 +10,7 @@
 
 **Q: What is wrong with atheism? How do we know that God really exists?**
 
-**A:** Humanity is created to worship. Anyone would worship something (whatever it is), making it their own god (or God). Also, there is a lot of evidence pointing to the existence of God and we should pursue to understand all of these.
+**A:** Humanity is created to worship. Anyone would worship something or someone (whatever it is), making it their own god (or God). Also, there is a lot of evidence pointing to the existence of God and we should pursue to understand all of these. However, Christians should not "judge" (and then discriminate, treat poorly, etc.) those who decide to be an atheist or an agnostic. Again, just to serve as a gentle reminder, we are called to love others. Show people what true unconditional love is, even when the situation is unsustainably hard or when the conditions are difficult. Treat humans humanely, with some form of humanity. The decision is intrinsically mutual (by its very nature); how you treat others is an instruction book for others on how to treat you. And Christians are called to go above and beyond this decision; to love others even when they do not love us back.
 
 **Q: How do we know that Jesus really lived?**
 
@@ -46,7 +46,7 @@
 
 **Q: Is there an absolute truth?**
 
-**A:** Yes, it is God’s Word (Bible -> commandments, comments, etc). It is used to differentiate between the right and the wrong.
+**A:** Yes, it is God’s Word (Bible -> commandments, comments, etc.) It is used to differentiate between the right and the wrong.
 
 **Q: Are we not allowed to judge?**
 
@@ -58,7 +58,7 @@
 
 **Q: Do Heaven and Hell exist and what are they?**
 
-**A:** Hell exists and it is just a place where there is no presence of God at all (no goodness, etc) -> that means in this physical world, there is still God’s presence. God gives us a free choice, whether to accept Him or not, if yes then we will be in Heaven, which is just a place full of God’s presence and holiness and love. Hell is a place of punishment for Lucifer (Satan, the Devil), and he does not punish humans there (not mentioned in the Bible).
+**A:** Hell exists and it is just a place where there is no presence of God at all (no goodness, etc.) -> that means in this physical world, there is still God’s presence. God gives us a free choice, whether to accept Him or not, if yes then we will be in Heaven, which is just a place full of God’s presence and holiness and love. Hell is a place of punishment for Lucifer (Satan, the Devil), and he does not punish humans there (not mentioned in the Bible).
 
 **Q: Does God really love us?**
 
@@ -70,7 +70,7 @@
 
 **Q: Can true Christians be affected by spiritual transfer?**
 
-**A:** Ephesians 1:13, Ephesians 4:30. We are sealed by the Holy Spirit until the Day of Redemption (Rapture). Spiritual transfer is impossible as Holy Spirit is stronger than any other spirits. Anointment is real (it is not a spiritual transfer). Like in Indonesia (welcome!), where there are still a lot going on with the dark spiritual side (santet, dukun, ganda uang, etc) at Trenggalek, Banyuwangi, Jogjakarta, Tulungagung, etc.
+**A:** Ephesians 1:13, Ephesians 4:30. We are sealed by the Holy Spirit until the Day of Redemption (Rapture). Spiritual transfer is impossible as Holy Spirit is stronger than any other spirits. Anointment is real (it is not a spiritual transfer). Like in Indonesia (welcome!), where there are still a lot going on with the dark spiritual side (santet, dukun, ganda uang, etc.) at Trenggalek, Banyuwangi, Jogjakarta, Tulungagung, etc.
 
 **Q: If Jesus was tied by white paper (like a mummy), should Christians follow that example?**
 
@@ -135,7 +135,7 @@ Body is just a temporary housing. Death is just a temporary separation. Lifestyl
 
 **Q: Are Christians against the LGBTQIADPNCO+ community (homosexuality and more)?**
 
-**A:** Both the Christian community and the LGBT+ community actually have more in common than they think. Prejudice and discrimination from conventional and conservative communities are mostly responsible for the hatred between the two communities. As Christians, we are called to "love thy neighbour as thyself". What part of this calling is not understood? And the LGBT+ community themselves, which is supposed to advocate for equal human rights regardless of sexual identity or sexual orientation, should not vehemently and violently discriminate against other people who, at a first glance, seem to be "less lovable" as well. We should not stand on the side of hatred. We should stand on the side of love. Regarding the sexual orientation issue itself, it is a question of design versus choice. Marriage and sex are supposed to be beautiful, the ultimate pinnacle of the expression of love between two individuals who have become one. God's original design dictates that the best relationship can be forged between a man and a woman. If some people choose to not follow the original blueprints, it is their choice (and we should still love and respect them as human beings, not any less). It is just not in alignment with the original design that God intended it to be. And there are more "choices" that play a stronger role in someone's eventual sexual orientation (even though it might change later in life) rather than just "being born with it", although this in itself is arguable. You can also study Bruce Bagemihl's 1999 book _Biological Exuberance_, an interesting read which outlined examples of homosexual behavior among animals.
+**A:** Both the Christian community and the LGBT+ community actually have more in common than they think. Prejudice and discrimination from conventional and conservative communities are mostly responsible for the hatred between the two communities. As Christians, we are called to "love thy neighbour as thyself". What part of this calling is not understood? And the LGBT+ community themselves, which is supposed to advocate for equal human rights regardless of sexual identity or sexual orientation, should not vehemently and violently discriminate against other people who, at a first glance, seem to be "less lovable" as well. We should not stand on the side of hatred. We should stand on the side of love. Regarding the sexual orientation issue itself, it is a question of design versus choice. Marriage and sex are supposed to be beautiful, the ultimate pinnacle of the expression of love between two individuals who have become one. God's original design dictates that the best relationship can be forged between a man and a woman. If some people choose to not follow the original blueprints, it is their choice (and we should still love and respect them as human beings, not any less). It is just not in alignment with the original design that God intended it to be. And there are more "choices" that play a stronger role in someone's eventual sexual orientation (even though it might change later in life) rather than just "being born with it", although this in itself is arguable. You can also study Bruce Bagemihl's 1999 book _Biological Exuberance_, an interesting read which outlined examples of homosexual behavior among animals. For those reading this: remember, don't use or cite this as an excuse to judge other people. Ultimately, true unconditional love still prevails. And it never fails. Even above and beyond the so-called conventional concepts of "good" and "evil".
 
 ## References
 
